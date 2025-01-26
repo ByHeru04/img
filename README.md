@@ -1,3 +1,0 @@
-ngapain bang ?
-
-# img
